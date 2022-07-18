@@ -1,1 +1,1 @@
-DCentric Global cultivates creativity visually promoting diversity and inclusion acrossthe globe.
+DCentric Global cultivates creativity by visually promoting your creative ideas incorporating diversity and inclusion across the globe.
